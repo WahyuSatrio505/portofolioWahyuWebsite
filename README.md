@@ -1,1 +1,6 @@
-Hiii Pekernalkan Nama Saya Wahyu Dan ini adalah Porto Pertama saya hehehehe
+Haiii
+
+
+Kenalin Nama saya Wahyu
+
+Dan ini adalah website portofolio pertama saya...
